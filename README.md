@@ -1,1 +1,1 @@
-# MYRESEPIE
+veg pizza recipe | veggie pizza recipe | vegetable pizza recipe with detailed photo and video recipe. pizza is a flat bread which is prepared with all purpose flour and fermented with yeast. it is typically topped with mozzarella cheese, pizza tomato sauce and other vegetarian pizza toppings. pizza can be consumed as snack, but not limited for lunch and dinner too.
